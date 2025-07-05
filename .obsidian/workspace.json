@@ -150,13 +150,23 @@
               "icon": "lucide-list",
               "title": "Outline of Character design idea Zombie-chan"
             }
+          },
+          {
+            "id": "d313d7ac3f7c4ca4",
+            "type": "leaf",
+            "state": {
+              "type": "git-view",
+              "state": {},
+              "icon": "git-pull-request",
+              "title": "Source Control"
+            }
           }
-        ]
+        ],
+        "currentTab": 4
       }
     ],
     "direction": "horizontal",
-    "width": 300,
-    "collapsed": true
+    "width": 300
   },
   "left-ribbon": {
     "hiddenItems": {
@@ -169,7 +179,7 @@
       "obsidian-git:Open Git source control": false
     }
   },
-  "active": "d04d8e7f70a9fc8f",
+  "active": "1540f65cedbf409b",
   "lastOpenFiles": [
     "Untitled",
     "Welcome.md",
