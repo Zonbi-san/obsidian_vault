@@ -1,5 +1,6 @@
 blue Grey skin or Dark grey skin
 Yellow or Red eyes
+
 stitched patches on skin or reattached limbs (The bride go brrrr)
 Maybe some cat like features?
 Fashion style: Jirai kei, Emo, Grunge
@@ -15,4 +16,7 @@ Main outfit:
 	 - Short skirt high waist with suspenders
 	 - white striped thigh highs or pantyhose
 	 - some sort of boots.... or maybe loafers?
-Lounging outfit
+Lounging outfit:
+	 - Big ass T-shirt
+	 - Dolphin shorts
+	 - comfy ass socks
