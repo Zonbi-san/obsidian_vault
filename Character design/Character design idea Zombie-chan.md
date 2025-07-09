@@ -3,7 +3,7 @@ Yellow or Red eyes
 
 stitched patches on skin or reattached limbs (The bride go brrrr)
 Maybe some cat like features?
-Fashion style: Jirai kei, Emo, Grunge
+Fashion style: Jirai kei, Tenshi kawaii, Emo, Grunge
 cat ears and tails can be added depending on the mood
 Hair:
 	 - Hime-cut with two mini twin tails
