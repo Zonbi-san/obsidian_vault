@@ -10,4 +10,4 @@ Hair:
 	- semi-exposed forehead
 
 Main outfit:
-	 - 
+	 - tank top over
