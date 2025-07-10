@@ -1,6 +1,5 @@
 blue Grey skin or Dark grey skin
 Yellow or Red eyes
-
 stitched patches on skin or reattached limbs (The bride go brrrr)
 Maybe some cat like features?
 Fashion style: Jirai kei, Tenshi kawaii, Emo, Grunge

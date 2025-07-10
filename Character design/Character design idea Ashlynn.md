@@ -10,4 +10,6 @@ Hair:
 	- semi-exposed forehead
 
 Main outfit:
-	 - tank top over
+	 - tank top over fishnet top (might look noisy ngl)
+	 - ripped jeans go brrrrrr
+	 - maybe a flower in her hair as an accessory (something that would at)
