@@ -17,5 +17,5 @@ Main outfit:
 	 - some sort of boots.... or maybe loafers?
 Lounging outfit:
 	 - Big ass T-shirt (mostly anime/weeb stuff)
-	 - Dolphin shorts
+	 - Dolphin shorts or sweatpants
 	 - comfy ass socks
