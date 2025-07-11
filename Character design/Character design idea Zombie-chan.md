@@ -16,6 +16,6 @@ Main outfit:
 	 - white striped thigh highs or pantyhose
 	 - some sort of boots.... or maybe loafers?
 Lounging outfit:
-	 - Big ass T-shirt
+	 - Big ass T-shirt (mostly anime/weeb stuff)
 	 - Dolphin shorts
 	 - comfy ass socks

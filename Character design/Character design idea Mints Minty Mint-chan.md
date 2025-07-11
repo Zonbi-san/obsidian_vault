@@ -8,3 +8,4 @@ fashion style: dark academia mix with goth
 Hair:
 	- really fluffy and poofy curly hair and maybe have it tied low
 	- blonde hair (might have abit of room to play with patterns)
+Main outfit
