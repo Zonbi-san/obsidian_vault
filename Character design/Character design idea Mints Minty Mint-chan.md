@@ -5,4 +5,5 @@ two tone orange coat? or maybe calico?
 face markings mimicking whiskers (or just mimicking a tabby coat :v)
 AAAAAAAHHHHHHHHH
 fashion style: dark academia mix with goth
-
+Hair:
+	- 
