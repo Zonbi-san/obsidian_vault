@@ -6,5 +6,5 @@ face markings mimicking whiskers (or just mimicking a tabby coat :v)
 AAAAAAAHHHHHHHHH
 fashion style: dark academia mix with goth
 Hair:
-	- really fluffy and poofy curly hair
+	- really fluffy and poofy curly hair and maybe have it tied low
 	- 
