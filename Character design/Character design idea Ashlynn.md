@@ -5,7 +5,7 @@ Possible animal like features (Fox ears? Moth Antennae?)
 light grey eyes
 Fashion style: traditional celtic, Gothic, emo (?)
 Hair:
-	- Long unkempt curly hair or maybe style it to have her ears exposed
+	- shoulder length curly hair or maybe style it to have her ears exposed
 	- Desaturated cyan
 	- semi-exposed forehead
 Main outfit:
