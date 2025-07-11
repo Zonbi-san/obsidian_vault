@@ -7,4 +7,4 @@ AAAAAAAHHHHHHHHH
 fashion style: dark academia mix with goth
 Hair:
 	- really fluffy and poofy curly hair and maybe have it tied low
-	- dyed blonde or dirty blonde
+	- blonde hair (might have abit of room to play with patterns)
