@@ -1,0 +1,1 @@
+typical blonde man with platinum blonde hair
