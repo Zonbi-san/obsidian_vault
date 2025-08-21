@@ -1,1 +1,3 @@
-typical blonde man with platinum blonde hair
+typical blonde dog boy/man with platinum blonde hair
+quiet and silent vibe?
+Hair
